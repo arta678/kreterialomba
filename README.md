@@ -22,30 +22,3 @@
 > __[Kreteria Dance](https://pages.github.com/)__
 
 > __[Kreteria Fotografi](https://pages.github.com/)__
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
--
