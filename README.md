@@ -29,5 +29,5 @@ Kamu bisa mendaftarkan diri pada link berikut
 
 
 Jika kesulitan mendaftar bisa menghubungi contact berikut:
-- 085737081195 (**Desy Tiara)
-- 0881038201739 (**Sri Dian)
+- 085737081195 (**Desy Tiara**)
+- 0881038201739 (**Sri Dian**)
