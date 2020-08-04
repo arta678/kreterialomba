@@ -17,7 +17,11 @@
 
 9. Peserta dapat membawa naskah
 
-10. Pidato divideokan melalui handphone lalu di post di instagram pribadi peserta (instagram tidak di private) dengan men tag akun @osis_ spendasel dn menyertakan hastag #GeloraMerdeka2020 #LombaPidatoSpendasel #SmpN2Selat #SmpN2SelatKeren
+10. Pidato divideokan melalui handphone lalu di post di instagram pribadi peserta (instagram tidak di private) dengan men tag akun **@osis_ spendasel** dn menyertakan hastag:
+       - **#GeloraMerdeka2020**
+       - **#LombaPidatoSpendasel** 
+       - **#SmpN2Selat**
+       - **#SmpN2SelatKeren**
 11. Video harus utuh tanpa editing
 12. Latar pengambilan video bebas (usahakan kelihatan dari kepala- kaki)
 
