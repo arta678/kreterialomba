@@ -11,14 +11,16 @@
 
 > __[Ketentuan Umum](https://pages.github.com/)__
 
-> __[Kreteria Lomba Puisi](https://github.com/arta678/kreterialomba/blob/master/page/Puisi.md)__
+> __[Kreteria Lomba Tari Bali](https://github.com/arta678/kreterialomba/blob/master/page/Puisi.md)__
 
-> __[Kreteria Pidato](https://pages.github.com/)__
+> __[Kreteria Lomba Fotografi + Caption Terbaik](https://pages.github.com/)__
 
-> __[Kreteria Poster](https://pages.github.com/)__
+> __[Kreteria Lomba Puisi](https://pages.github.com/)__
 
-> __[Kreteria Tari Bali](https://pages.github.com/)__
+> __[Kreteria Lomba Poster](https://pages.github.com/)__
 
-> __[Kreteria Dance](https://pages.github.com/)__
+> __[Kreteria Lomba Pidato](https://pages.github.com/)__
 
-> __[Kreteria Fotografi](https://pages.github.com/)__
+> __[Kreteria Lomba Cover Lagu](https://pages.github.com/)__
+
+> __[Kreteria Lomba Dance](https://pages.github.com/)__
