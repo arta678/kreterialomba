@@ -6,21 +6,21 @@ Pengumuman Pemenang : ``` 17 Agustus 2020 ```
 
 ## Berikut Kriteria Lomba 17 Agustus SPENDASEL
 
-> __[Ketentuan Umum](https://pages.github.com/)__
+> __[Ketentuan Umum](https://github.com/arta678/kreterialomba/blob/master/page/KetentuanUmum.md)__
 
-> __[Kriteria Lomba Tari Bali](https://github.com/arta678/kreterialomba/blob/master/page/Puisi.md)__
+> __[Kriteria Lomba Tari Bali](https://github.com/arta678/kreterialomba/blob/master/page/TariBali.md)__
 
-> __[Kriteria Lomba Fotografi + Caption Terbaik](https://pages.github.com/)__
+> __[Kriteria Lomba Fotografi + Caption Terbaik](https://github.com/arta678/kreterialomba/blob/master/page/Fotografi.md)__
 
-> __[Kriteria Lomba Puisi](https://pages.github.com/)__
+> __[Kriteria Lomba Puisi](https://github.com/arta678/kreterialomba/blob/master/page/Puisi.md)__
 
-> __[Kriteria Lomba Poster](https://pages.github.com/)__
+> __[Kriteria Lomba Poster](https://github.com/arta678/kreterialomba/blob/master/page/Poster.md)__
 
-> __[Kriteria Lomba Pidato](https://pages.github.com/)__
+> __[Kriteria Lomba Pidato](https://github.com/arta678/kreterialomba/blob/master/page/Pidato.md)__
 
-> __[Kriteria Lomba Cover Lagu](https://pages.github.com/)__
+> __[Kriteria Lomba Cover Lagu](https://github.com/arta678/kreterialomba/blob/master/page/CoverLagu.md)__
 
-> __[Kriteria Lomba Tiktok](https://pages.github.com/)__
+> __[Kriteria Lomba Tiktok](https://github.com/arta678/kreterialomba/blob/master/page/Tiktok.md)__
 
 ## Pendaftaran Lomba
 Kamu bisa mendaftarkan diri pada link berikut
