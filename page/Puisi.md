@@ -14,7 +14,7 @@
 
 1. Durasi waktu 3- 5 menit
 
-2. puisi dibuat sendiri dengan tema yg sudah di tentukan.
+2. Puisi dibuat sendiri dengan tema yg sudah di tentukan.
 
 3. Dikirimkan paling lambat tanggal 11 Agustus
 
