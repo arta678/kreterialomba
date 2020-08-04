@@ -1,8 +1,8 @@
 # Selamat Datang Calon Peserta Lomba
 
-Waktu Pendaftaran :**6 - 14 Agustus 2020**
+Waktu Pendaftaran : **6 - 14 Agustus 2020**
 
-Pengumuman Pemenang :**17 Agustus 2020**
+Pengumuman Pemenang : **17 Agustus 2020**
 
 ## Berikut Kriteria Lomba 17 Agustus SPENDASEL
 
@@ -25,7 +25,7 @@ Pengumuman Pemenang :**17 Agustus 2020**
 ## Pendaftaran Lomba
 Kamu bisa mendaftarkan diri pada link berikut
 
-[Daftar](https://docs.google.com/forms/d/e/1FAIpQLSfh283NZedRwUSminXWrxF6KQDwIqjaXlFWWF9Gw7boyNRUhQ/viewform?usp=sf_link)
+**[Daftar](https://docs.google.com/forms/d/e/1FAIpQLSfh283NZedRwUSminXWrxF6KQDwIqjaXlFWWF9Gw7boyNRUhQ/viewform?usp=sf_link)**
 
 
 Jika kesulitan mendaftar bisa menghubungi contact berikut:
