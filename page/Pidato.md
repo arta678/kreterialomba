@@ -36,7 +36,7 @@
 6. pengumuman pemenang 17 Agustus 2020 
 
 ## Kriteria Penilaian:
-    - Struktur materi pidato
-    - kesesuaian tema, judul,isi pidato.
-    - Ketepatan waktu
-    - Penampilan meliputi ekspresi,gestur komunikator,intonasi, vokal, dan artikulasi.
+1. Struktur materi pidato
+2. kesesuaian tema, judul,isi pidato.
+3. Ketepatan waktu
+4. Penampilan meliputi ekspresi,gestur komunikator,intonasi, vokal, dan artikulasi.
