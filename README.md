@@ -28,6 +28,8 @@ Pengumuman Pemenang : ``` 17 Agustus 2020 ```
 
 > __[Kreteria Lomba Dance](https://pages.github.com/)__
 
+## Pendaftaran
+
 Pendaftaran Bisa Mengghubungi Contact Berikut:
 - 085737081195 (Desy Tiara)
 - 0881038201739 (Sri Dian)
