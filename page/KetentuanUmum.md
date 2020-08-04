@@ -15,7 +15,7 @@ Boleh tidak diikuti oleh peserta.Lomba yang di toleran adalah lomba yg bersifat 
 9. Karya dikirim paling lambat tanggal 15 Agustus 2020.
 10. Hasil karya terbaik akan diumumkan pada Tanggal 17 Agustus 2020.
 
-## KETENTUAN UMUM
+## WAKTU DAN TEKNIS PENDAFTARAN
 1. Pendaftaran lomba akan dibuka pada tanggal 6 Agustus dan akan ditutup tanggal 14 gustus 2020.
 2. Peserta yang mendaftar akan diarahkan untuk mengisi folmulir pendaftaran lewat forum yang telah di tentukan panitia.
 3. Jika ada ketidak pahaman mengenai kriteria tertera,Konfirmasi lebih lanjut melalui penanggung jawab pelaksana:
