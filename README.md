@@ -6,21 +6,21 @@ Pengumuman Pemenang : **17 Agustus 2020**
 
 ## Berikut Kriteria Lomba 17 Agustus SPENDASEL
 
-> __[Ketentuan Umum](https://github.com/arta678/kreterialomba/blob/master/page/KetentuanUmum.md)__
+> __[Ketentuan Umum](https://github.com/arta678/kreterialomba/blob/master/page/KetentuanUmum.md#ketentuan-umum)__
 
-> __[Kriteria Lomba Tari Bali](https://github.com/arta678/kreterialomba/blob/master/page/TariBali.md)__
+> __[Kriteria Lomba Tari Bali](https://github.com/arta678/kreterialomba/blob/master/page/TariBali.md#kriteria-ketentuan-untuk-lomba-tari-bali-)__
 
-> __[Kriteria Lomba Fotografi + Caption Terbaik](https://github.com/arta678/kreterialomba/blob/master/page/Fotografi.md)__
+> __[Kriteria Lomba Fotografi + Caption Terbaik](https://github.com/arta678/kreterialomba/blob/master/page/Fotografi.md#kriteria-lomba-fotografi-dan-caption-terbaik)__
 
-> __[Kriteria Lomba Puisi](https://github.com/arta678/kreterialomba/blob/master/page/Puisi.md)__
+> __[Kriteria Lomba Puisi](https://github.com/arta678/kreterialomba/blob/master/page/Puisi.md#kriteria-lomba-puisi)__
 
-> __[Kriteria Lomba Poster](https://github.com/arta678/kreterialomba/blob/master/page/Poster.md)__
+> __[Kriteria Lomba Poster](https://github.com/arta678/kreterialomba/blob/master/page/Poster.md#kriteria-lomba-poster)__
 
-> __[Kriteria Lomba Pidato](https://github.com/arta678/kreterialomba/blob/master/page/Pidato.md)__
+> __[Kriteria Lomba Pidato](https://github.com/arta678/kreterialomba/blob/master/page/Pidato.md#kriteria-lomba-pidato)__
 
-> __[Kriteria Lomba Cover Lagu](https://github.com/arta678/kreterialomba/blob/master/page/CoverLagu.md)__
+> __[Kriteria Lomba Cover Lagu](https://github.com/arta678/kreterialomba/blob/master/page/CoverLagu.md#kriteria-cover-lagu)__
 
-> __[Kriteria Lomba Tiktok](https://github.com/arta678/kreterialomba/blob/master/page/Tiktok.md)__
+> __[Kriteria Lomba Tiktok](https://github.com/arta678/kreterialomba/blob/master/page/Tiktok.md#kriteria-lomba-dance-tiktok)__
 
 ## Pendaftaran Lomba
 Kamu bisa mendaftarkan diri pada link berikut
