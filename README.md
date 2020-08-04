@@ -1,1 +1,2 @@
-## Halo peserta Lomba
+## Berikut Kreteria Lomba 17 Agustus SPENDASEL
+[Ketentuan Umum](https://pages.github.com/)
