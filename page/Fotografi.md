@@ -3,7 +3,7 @@
 2. Alat memotret objek bisa menggunakan kamera smartphone atau kamera digital.
 3. Hasil foto wajib menggunakan format JPG.
 4. Hasil foto boleh murni, boleh juga diedit, dan tidak kabur.
-5. Postingan disertai caption semenarik mungkin (tema kemerdekaan atau Covid 19). 
+5. Postingan disertai caption semenarik mungkin (**tema kemerdekaan** atau **Covid 19**). 
 ## Pendaftaran lomba:
 1. Sertakan judul, nama, dan kelas.
 2. Keterangan foto (caption) :
