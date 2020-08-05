@@ -7,7 +7,8 @@
 
 ## PENDAFTARAN LOMBA
 
-1. Peserta mendaftarkan diri dimulai dari tanggal **6- 11 Agustus**, Dengan mengisi formulir yang tersedia
+1. Peserta mendaftarkan diri dimulai dari tanggal **6- 11 Agustus**, Dengan mengisi formulir pada link berikut
+**[Daftar](https://docs.google.com/forms/d/e/1FAIpQLSfh283NZedRwUSminXWrxF6KQDwIqjaXlFWWF9Gw7boyNRUhQ/viewform?usp=sf_link)**
 
 
 ## STRUKTUR PENGIRIMAN PUISI
