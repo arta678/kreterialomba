@@ -1,10 +1,12 @@
 ## Kriteria Lomba Poster
-1. Poster dikerjakan secara manual
-2. Alat
+1. Lomba diikuti oleh siswa SMPN 2 SELAT yang masih aktif bersekolah.
+2. Poster dikerjakan secara manual
+3. Alat
     - Buku gambar A3
     - Warna yang digunakan Bebas
-3. Untuk pengerjaan divideokan maksimal
-4. Tidak boleh mengcopy atau menjiplak karya orang lain atau dari situs gogle atau yang lain.
+4. Karya dibuat sesuai dengan tema " Gelora Pendidikan dan Semangat Kemerdekaan melalui Daring di Era New Normal 2020"
+5. Karya peserta harus dividiokan atau difoto dan diunggah di akun media sosial instagram masing masing (untuk akun peserta jangan diprivasi) 
+6. Tidak boleh mengcopy atau menjiplak karya orang lain atau dari situs gogle atau yang lain.
 
 ## Pendaftaran dan Pengumpulan :
 1. Peserta masih aktif atau bersekolah di SMP Negeri 2 Selat
