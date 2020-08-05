@@ -25,13 +25,10 @@
 
 1. Pendaftaran online peserta dilakukan mulai tanggal **6-8 Agustus 2020**
 2. Pengiriman naskah dan video terakhir tanggal **14 Agustus 2020** pukul **20:00 WITA**
-3. Seleksi dan penjurian tanggal **12 - 14 Agustus 2020**
-4. Pengumuman naskah	tanggal **15 Agustus 2020**
-5. Penampilan naskah **16 Agustus 2020** pukul **08.00 WITA** (lewat dari waktu yg ditentukan = didiskualifikasi)
-6. Pengumuman pemenang **17 Agustus 2020**
+3. Pengumuman pemenang **17 Agustus 2020**
 
 ## Kriteria Penilaian:
 1. Struktur materi pidato
-2. kesesuaian tema, judul,isi pidato.
+2. Kesesuaian tema, judul, isi pidato.
 3. Ketepatan waktu
 4. Penampilan meliputi ekspresi,gestur komunikator,intonasi, vokal, dan artikulasi.
