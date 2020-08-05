@@ -7,7 +7,7 @@
 4. Pihak panitia berhak MENDISKUALIFIKASI peserta yang dianggap tidak memenuhi.
 5. Penilaian dewan juri dan hasil lomba tidak dapat diganggu- gugat dengan alasan apapun atau oleh siapa pun, kecuali pada
 kemudian hari diketahui adanya pelanggaran oleh peserta.
-6. Pengumpulan Vidio melalui akun Instagram bisa milik pribadi atau kelas yang bersangkutan(Tidak disarankan mem- Privasi akun yang akan diperlombakan) dengan caption: nama peserta,kelas Serta deskripsi mengenai karya terkait.Siswa sebelumnya harus sudah mengikuti akun **@osis_ spendasel**. Mantion ke **@osis_ spendasel** dengan menyertakan hastag:
+6. Pengumpulan Vidio melalui akun Instagram bisa milik pribadi atau kelas yang bersangkutan (Tidak disarankan mem- Privasi akun yang akan diperlombakan) dengan caption: nama peserta, kelas Serta deskripsi mengenai karya terkait. Siswa sebelumnya harus sudah mengikuti akun **@osis_ spendasel**. Mantion ke **@osis_ spendasel** dengan menyertakan hastag:
     - **#GeloraMerdeka2020** 
     - **#LombaterkaitSpendasel** (contoh **#LombaPuisiSpendasel**) 
     - **#SmpN2SelatKeren**
