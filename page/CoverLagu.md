@@ -8,8 +8,8 @@
 1. Lagu yang di cover:
     - Pilihan 1 : Tanah Air 
     - Pilihan 2 : Gugur Bunga
-2. Pakaian putih biru,jika belum punya pakai merah putih(rambut rapi)
-3. Durasi video cover	menyesuaikan dengan lagu.
+2. Pakaian putih biru, jika belum punya pakai merah putih (rambut rapi)
+3. Durasi video cover menyesuaikan dengan lagu.
 4. Karya berupa live cover/suara asli peserta bukan lipsing
 5. Karya direkam dengan alat  perekam apapun	dengan ketentuan hasil rekaman video baik, tidak kabur, pencahayaan baik dan suara jelas.
 6. Tidak diperkenankan mengedit hingga mengubah suara asli peserta.
@@ -20,11 +20,9 @@
 
 1. Judul lagu , nama peserta,dan kelas.
 2. Keterangan video (caption):
-    - #LombaCoverLaguSpendasel 
-    - #smpn2selatkeren 
-    - @osis_ spendasel
-3. Pendaftaran dimulai dari tanggal 6- 14 Agustus 2020
-
-4. Cover diunggah paling lambat 14 Agustus 2020.
-
+    - **#LombaCoverLaguSpendasel**
+    - **#smpn2selatkeren**
+    - **@osis_ spendasel**
+3. Pendaftaran dimulai dari tanggal **6-14 Agustus 2020**
+4. Cover diunggah paling lambat **14 Agustus 2020**.
 5. Keputusan dewan juri bersifat mutlak.
