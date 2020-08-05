@@ -23,6 +23,6 @@
     - **#LombaCoverLaguSpendasel**
     - **#smpn2selatkeren**
     - **@osis_ spendasel**
-3. Pendaftaran dimulai dari tanggal **6-14 Agustus 2020**
-4. Cover diunggah paling lambat **14 Agustus 2020**.
+3. Pendaftaran dimulai dari tanggal **6-12 Agustus 2020**
+4. Cover diunggah paling lambat **14 Agustus 2020** jam **18:00.**
 5. Keputusan dewan juri bersifat mutlak.
