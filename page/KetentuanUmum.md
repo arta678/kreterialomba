@@ -1,14 +1,16 @@
 ## KETENTUAN UMUM
 1. Peserta adalah siswa/siswi aktif SMP N 2 SELAT.
-2. Lomba akan dibagi menjadi 2 bagian 
+2. Lomba akan dibagi menjadi 2 bagian:
     - kelompok
     - perorangan
 3. Peserta wajib mengisi formulir pendaftaran Melalui forum yang telah di sediakan.
 4. Pihak panitia berhak MNDISKUALIFIKASI peserta yang dianggap tidak memenuhi.
 5. Penilaian dewan juri dan hasil lomba tidak dapat diganggu- gugat dengan alasan apapun atau oleh siapa pun, kecuali pada
 kemudian hari diketahui adanya pelanggaran oleh peserta.
-6. Pengumpulan Vidio melalui akun Instagram bisa milik pribadi atau kelas yang bersangkutan(Tidak disarankan mem- Privasi akun yang akan diperlombakan) dengan caption: nama peserta,kelas Serta deskripsi mengenai karya terkait.Siswa sebelumnya harus sudah mengikuti akun @osis_ spendasel. Mantion ke @osis_ spendasel dengan menyertakan hastag:
-    - #GeloraMerdeka2020 #LombaterkaitSpendasel(contoh #LombaPuisiSpendasel) #SmpN2SelatKeren
+6. Pengumpulan Vidio melalui akun Instagram bisa milik pribadi atau kelas yang bersangkutan(Tidak disarankan mem- Privasi akun yang akan diperlombakan) dengan caption: nama peserta,kelas Serta deskripsi mengenai karya terkait.Siswa sebelumnya harus sudah mengikuti akun **@osis_ spendasel**. Mantion ke **@osis_ spendasel** dengan menyertakan hastag:
+    - **#GeloraMerdeka2020** 
+    - **#LombaterkaitSpendasel** (contoh **#LombaPuisiSpendasel**) 
+    - **#SmpN2SelatKeren**
 7. Kebijakan panitia menetapkan 1- 2 lomba
 Boleh tidak diikuti oleh peserta.Lomba yang di toleran adalah lomba yg bersifat Perorangan.
 8. Pendaftaran akan ditutup jika peserta lomba telah memenuhi kuota atau masa tenggang pendaftaran telah habis.
