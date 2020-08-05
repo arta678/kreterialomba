@@ -18,7 +18,7 @@ Pengumuman Pemenang : **17 Agustus 2020**
 
 > __[Ketentuan Umum](https://github.com/arta678/kreterialomba/blob/master/page/KetentuanUmum.md#ketentuan-umum)__
 
-> __[Kriteria Lomba Tari Bali](https://github.com/arta678/kreterialomba/blob/master/page/TariBali.md#kriteria-ketentuan-untuk-lomba-tari-bali-)__
+> __[Kriteria Lomba Tari Bali](https://github.com/arta678/kreterialomba/blob/master/page/TariBali.md#kriteria-lomba-tari-bali-)__
 
 > __[Kriteria Lomba Fotografi + Caption Terbaik](https://github.com/arta678/kreterialomba/blob/master/page/Fotografi.md#kriteria-lomba-fotografi-dan-caption-terbaik)__
 
