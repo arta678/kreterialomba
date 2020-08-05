@@ -1,4 +1,14 @@
 # Selamat Datang Calon Peserta Lomba
+ :boom: Memperingati Hari Kemerdekaan RI ke-75 :boom: , SMPN 2 Selat mengadakan banyak lomba diantaranya :  
+ - :dancer:**Lomba Tari Bali** ,  
+ - :camera: **Fotografi+Caption Terbaik**, 
+ - :microphone: **Lomba Puisi**,
+ - :art: **Lomba Poster**, 
+ - :mega: **Lomba Pidato**, 
+ - :musical_note: **Lomba Cover Lagu**, dan  
+ - :dancers: **Lomba Dance Tiktok**.
+
+Ayo Buruan Ikuti Lombanya !
 
 Waktu Pendaftaran : **6 - 14 Agustus 2020**
 
