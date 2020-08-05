@@ -8,7 +8,7 @@
 7. Tidak lesu/ lemas usahakan powerful.
 8. 1 kelas maksimal 3 orang.
 9. Harus bertema/berisi tentang pencegahan covid19.
-10. Harus dikirim sebelum jam 20.00 tanggal 14 Agustus 2020.
+10. Harus dikirim sebelum **jam 20.00** tanggal **14 Agustus 2020.**
 
 ## Pendaftaran lomba :
 
@@ -18,8 +18,8 @@
     - **#LombaTiktokSpendasel**, 
     - **#smpn2selatkeren**,
 4. Tag akun Intagram official **@osis_ spendasel**.
-5. Pendaftaran dimulai dari tanggal 6 sampai 13 Agustus 2020.
-6.  Video diunggah paling lambat tanggal 14 Agustus 2020.
+5. Pendaftaran dimulai dari tanggal **6 sampai 13 Agustus 2020**.
+6.  Video diunggah paling lambat tanggal **14 Agustus 2020.**
 
 
 
