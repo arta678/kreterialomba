@@ -21,6 +21,6 @@
 2. Tag akun **@osis_spendasel** pada karya
 4. Tag peserta yang ikut pada caption.
 5. Hastag yang digunkan:
+    - **#GeloraMerdeka2020** 
     - **#LombaCoverLaguSpendasel**
     - **#smpn2selatkeren**
-    - **@osis_ spendasel**
