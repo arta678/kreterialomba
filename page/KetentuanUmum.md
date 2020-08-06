@@ -1,6 +1,6 @@
 ## KETENTUAN UMUM
 1. Peserta adalah siswa/siswi aktif SMP N 2 SELAT.
-2. Jika siswa sudah meng-upload video sesuai kriteria yang ditentukan siswa dinyatakan sudah mendaftar secara resmi.
+2. Jika siswa sudah meng-upload karya sesuai kriteria yang ditentukan siswa dinyatakan sudah mendaftar secara resmi.
 3. Pengumpulan video melalui akun Instagram bisa milik pribadi atau kelas yang bersangkutan (Tidak disarankan mem- Privasi akun yang akan diperlombakan) dengan caption: nama peserta, kelas Serta deskripsi mengenai karya terkait. Siswa sebelumnya harus sudah mengikuti akun **@osis_ spendasel**. Mantion ke **@osis_ spendasel** dengan menyertakan hastag:
     - **#GeloraMerdeka2020** 
     - **#LombaterkaitSpendasel** (contoh **#LombaPuisiSpendasel**) 
