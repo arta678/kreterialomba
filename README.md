@@ -6,10 +6,6 @@
 
 Ayo Buruan Ikuti Lombanya !
 
-Waktu Pendaftaran : **6 - 14 Agustus 2020**
-
-Pengumuman Pemenang : **17 Agustus 2020**
-
 ## Berikut Kriteria Lomba 17 Agustus SPENDASEL
 
 > __[Ketentuan Umum](https://github.com/arta678/kreterialomba/blob/master/page/KetentuanUmum.md#ketentuan-umum)__
