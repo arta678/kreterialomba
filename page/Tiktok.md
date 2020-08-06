@@ -6,7 +6,7 @@
 5. Baju rapi tetapi sopan.
 6. Latar belakang bebas.
 7. Tidak lesu/ lemas usahakan powerful.
-8. 1 kelas maksimal 3 orang.
+8. Dalam 1 video jumlah orang bebas
 9. Harus bertema/berisi tentang pencegahan covid19.
 10. Harus dikirim sebelum **jam 20.00** tanggal **14 Agustus 2020.**
 
