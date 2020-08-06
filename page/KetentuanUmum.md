@@ -15,10 +15,9 @@ kemudian hari diketahui adanya pelanggaran oleh peserta.
 9. Karya dikirim paling lambat tanggal **15 Agustus 2020**.
 10. Hasil karya terbaik akan diumumkan pada Tanggal **17 Agustus 2020**.
 
-## WAKTU UPLOAD VIDEO
+## WAKTU DAN TEKNIS PENDAFTARAN
 1. Pendaftaran lomba akan dibuka pada tanggal **7 Agustus 2020** dan akan ditutup tanggal **14 Agustus 2020**.
-2. Peserta yang mendaftar akan diarahkan untuk mengisi folmulir pendaftaran lewat forum yang telah di tentukan panitia.
-3. Jika ada ketidak pahaman mengenai kriteria tertera, Konfirmasi lebih lanjut melalui penanggung jawab pelaksana:
+2. Jika ada ketidak pahaman mengenai kriteria tertera, Konfirmasi lebih lanjut melalui penanggung jawab pelaksana:
     - Panitia Fotografi **081547381084** (Karunia)
     - Panitia Cover Lagu **081547381071** (Ayu Trisna)
     - Panitia Tiktok **082236950180** (Aridiana)
