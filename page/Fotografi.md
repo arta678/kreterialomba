@@ -4,14 +4,12 @@
 3. Hasil foto wajib menggunakan format JPG.
 4. Hasil foto boleh murni, boleh juga diedit, dan tidak kabur.
 5. Postingan disertai caption semenarik mungkin (**tema kemerdekaan** atau **Covid 19**).
-6. Pemostingan terakhir tanggal **15 Agustus 2020**
-
-## Pendaftaran Lomba:
-1. Waktu Pendaftaran tanggal **7** sampai **15 Agustus 2020**(Daftar langsung bagikan karya)
+6. Karya di kumpulkan atau di publikasikan terakhir tanggal **15 Agustus 2020**.
+7. Waktu pengumpulan karya tanggal **7-15 Agustus 2020**(langsung dianggap sebagai peserta jika sudah membagikan).
 
 ## Teknis Pengumpulan Karya:
-1. Posting hasil karya di instagram.
-2. Sertakan judul, nama, dan kelas.
+1. Posting hasil karya di instagram masing-masing.
+2. Sertakan judul
 3. Keterangan foto (caption) :
     - **#GeloraMerdeka2020**
     - **#LombaFotografiSpendasel**
