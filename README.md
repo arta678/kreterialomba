@@ -22,6 +22,8 @@ Pengumuman Pemenang : **17 Agustus 2020**
 
 
 ## Jika ada pertanyaan  bisa menghubungi contact berikut:
-   - 
-   - 
+ - Panitia Fotografi 081547381084 (Karunia)
+ - Panitia Cover Lagu 081547381071 (Ayu Trisna)
+ - Panitia Tiktok 082236950180 (Aridiana)
+
 
