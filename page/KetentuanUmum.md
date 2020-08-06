@@ -12,4 +12,3 @@
     - Panitia Fotografi **081547381084** (Karunia)
     - Panitia Cover Lagu **081547381071** (Ayu Trisna)
     - Panitia Tiktok **082236950180** (Aridiana)
-
