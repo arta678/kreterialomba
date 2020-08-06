@@ -6,7 +6,7 @@
 5. Postingan disertai caption semenarik mungkin (**tema kemerdekaan** atau **Covid 19**).
 6. Pemostingan terakhir tanggal **15 Agustus 2020**
 
-## Pendaftaran lomba:
+## Pendaftaran Lomba:
 1. Waktu Pendaftaran tanggal **7** sampai **15 Agustus 2020**(Daftar langsung bagikan karya)
 
 ## Teknis Pengumpulan Karya:
