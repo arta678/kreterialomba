@@ -1,7 +1,4 @@
 ## KRITERIA COVER LAGU
-1. Kreativitas aransemen lagu
-2. Teknik vokal
-3. Atensi terhadap video cover (jumlah like dan keputusan juri)
 
 ## SPESIFIKASI LOMBA
 
