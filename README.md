@@ -21,7 +21,7 @@ Pengumuman Pemenang : **17 Agustus 2020**
 > __[Kriteria Lomba Tiktok](https://github.com/arta678/kreterialomba/blob/master/page/Tiktok.md#kriteria-lomba-dance-tiktok)__
 
 
-## Jika ada pertanyaan  bisa menghubungi contact berikut:
+##### Jika ada pertanyaan  bisa menghubungi contact berikut:
  - Panitia Fotografi 081547381084 (Karunia)
  - Panitia Cover Lagu 081547381071 (Ayu Trisna)
  - Panitia Tiktok 082236950180 (Aridiana)
