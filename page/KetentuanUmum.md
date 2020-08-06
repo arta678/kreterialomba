@@ -1,23 +1,14 @@
 ## KETENTUAN UMUM
 1. Peserta adalah siswa/siswi aktif SMP N 2 SELAT.
-2. Lomba akan dibagi menjadi 2 bagian:
-    - Kelompok
-    - Perorangan
-3. Pihak panitia berhak MENDISKUALIFIKASI peserta yang dianggap tidak memenuhi.
-4. Penilaian dewan juri dan hasil lomba tidak dapat diganggu-gugat dengan alasan apapun atau oleh siapa pun, kecuali pada
-kemudian hari diketahui adanya pelanggaran oleh peserta.
-5. Pengumpulan Vidio melalui akun Instagram bisa milik pribadi atau kelas yang bersangkutan (Tidak disarankan mem- Privasi akun yang akan diperlombakan) dengan caption: nama peserta, kelas Serta deskripsi mengenai karya terkait. Siswa sebelumnya harus sudah mengikuti akun **@osis_ spendasel**. Mantion ke **@osis_ spendasel** dengan menyertakan hastag:
+2. Jika siswa sudah meng-upload video sesuai kriteria yang ditentukan siswa dinyatakan sudah mendaftar secara resmi.
+3. Pengumpulan Vidio melalui akun Instagram bisa milik pribadi atau kelas yang bersangkutan (Tidak disarankan mem- Privasi akun yang akan diperlombakan) dengan caption: nama peserta, kelas Serta deskripsi mengenai karya terkait. Siswa sebelumnya harus sudah mengikuti akun **@osis_ spendasel**. Mantion ke **@osis_ spendasel** dengan menyertakan hastag:
     - **#GeloraMerdeka2020** 
     - **#LombaterkaitSpendasel** (contoh **#LombaPuisiSpendasel**) 
     - **#SmpN2SelatKeren**
-7. Jika lomba yang diikuti dalam bentuk kelompok, video diunggah oleh salah satu akun peserta serta mention peserta anggota yang lainnya.
-8. Pendaftaran akan ditutup jika peserta lomba telah memenuhi kuota atau masa tenggang pendaftaran telah habis.
-9. Karya dikirim paling lambat tanggal **15 Agustus 2020**.
-10. Hasil karya terbaik akan diumumkan pada Tanggal **17 Agustus 2020**.
+ 4. Waktu pengumpulan karya dari tangga **7-15 Agustus 2020** (siswa sudah dianggap sebagai peserta jika sudah membagikan hasil karya dan sudah memfollow instagram OSIS @osis_spendasel).
+ 5. Hasil karya terbaik akan diumumkan pada tanggal **17 Agustus 2020**.
 
-## WAKTU DAN TEKNIS PENDAFTARAN
-1. Pendaftaran lomba akan dibuka pada tanggal **7 Agustus 2020** dan akan ditutup tanggal **14 Agustus 2020**.
-2. Jika ada ketidak pahaman mengenai kriteria tertera, Konfirmasi lebih lanjut melalui penanggung jawab pelaksana:
+ Jika ada ketidak pahaman mengenai kriteria tertera, Konfirmasi lebih lanjut melalui penanggung jawab pelaksana:
     - Panitia Fotografi **081547381084** (Karunia)
     - Panitia Cover Lagu **081547381071** (Ayu Trisna)
     - Panitia Tiktok **082236950180** (Aridiana)
