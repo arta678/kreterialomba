@@ -19,7 +19,7 @@ kemudian hari diketahui adanya pelanggaran oleh peserta.
 1. Pendaftaran lomba akan dibuka pada tanggal **7 Agustus 2020** dan akan ditutup tanggal **14 Agustus 2020**.
 2. Peserta yang mendaftar akan diarahkan untuk mengisi folmulir pendaftaran lewat forum yang telah di tentukan panitia.
 3. Jika ada ketidak pahaman mengenai kriteria tertera, Konfirmasi lebih lanjut melalui penanggung jawab pelaksana:
-- Panitia Fotografi **081547381084** (Karunia)
-- Panitia Cover Lagu **081547381071** (Ayu Trisna)
-- Panitia Tiktok **082236950180** (Aridiana)
+    - Panitia Fotografi **081547381084** (Karunia)
+    - Panitia Cover Lagu **081547381071** (Ayu Trisna)
+    - Panitia Tiktok **082236950180** (Aridiana)
 
