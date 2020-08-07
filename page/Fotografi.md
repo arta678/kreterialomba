@@ -14,4 +14,4 @@
     - **#GeloraMerdeka2020**
     - **#LombaFotografiSpendasel**
     - **#smpn2selatkeren**
-4. Tag dan folow akun  instagram official **@osis_ spendasel** 
+4. Tag dan follow akun  instagram official **@osis_ spendasel** 
