@@ -1,7 +1,7 @@
-## Kriteria Lomba Tiktok.
+## Kriteria Lomba Tiktok Tentang Edukasi Pencegahan COVID-19
 1. Video dibuat semenarik dan seinovatif mungkin.
 2. Video direkam full body.
-3. Dance dengan lagu bebas.
+3. Gunakan iringan dengan lagu bebas.
 4. Durasi tidak dibatasi (bebas).
 5. Baju rapi tetapi sopan.
 6. Latar belakang bebas.
