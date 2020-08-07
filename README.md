@@ -14,7 +14,7 @@ Ayo Buruan Ikuti Lombanya !
 
 > __[Kriteria Lomba Cover Lagu](https://github.com/arta678/kreterialomba/blob/master/page/CoverLagu.md#kriteria-cover-lagu)__
 
-> __[Kriteria Lomba Tiktok](https://github.com/arta678/kreterialomba/blob/master/page/Tiktok.md#kriteria-lomba-dance-tiktok)__
+> __[Kriteria Lomba Tiktok](https://github.com/arta678/kreterialomba/blob/master/page/Tiktok.md#kriteria-lomba-tiktok)__
 
 
 ##### Jika ada pertanyaan  bisa menghubungi contact berikut:
