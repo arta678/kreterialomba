@@ -1,4 +1,4 @@
-## Kriteria Lomba Dance Tiktok.
+## Kriteria Lomba Tiktok.
 1. Video dibuat semenarik dan seinovatif mungkin.
 2. Video direkam full body.
 3. Dance dengan lagu bebas.
